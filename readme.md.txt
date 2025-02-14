@@ -21,19 +21,3 @@ Dans un manoir où règnent le désordre et l'étrangeté, un maître excentriqu
 
 *   **Acte 1 **: Un manoir opulent, mais négligé. Des meubles anciens et coûteux sont recouverts de poussière, certains sont renversés ou cassés. Des tableaux sont décrochés et appuyés contre les murs. La lumière filtre à travers des rideaux lourds et dépareillés, créant une atmosphère sombre et lugubre.
 *   **Acte 2 **: Le manoir est encore plus sens dessus dessous que dans l'Acte 1. Les meubles sont renversés, des objets insolites traînent partout. La lumière est encore plus faible, voire inexistante, à l'exception d'une lampe de chevet vacillante ou d'une bougie. L'atmosphère est sombre, inquiétante et chaotique.
-
-### Notes de l'auteur
-
-Cette pièce est une invitation à réfléchir sur la nature de la folie, sur la manière dont elle peut se propager et affecter notre perception de la réalité. Elle est aussi une satire de nos sociétés, où l'absurde est parfois plus présent que nous ne le pensons.
-
-### Représentations
-
-*   (Indiquez ici les dates et lieux des éventuelles représentations)
-
-### Contact
-
-*   (Indiquez ici votre adresse e-mail ou d'autres moyens de contact)
-
-### Remerciements
-
-*   (Remerciez ici les personnes qui vous ont aidé dans l'écriture ou la production de la pièce)
